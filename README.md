@@ -2,4 +2,4 @@
 
 
 ### 文章列表
-[匆匆](https://../article/2021-1-26-匆匆.md)
+[匆匆](https://tengyueyang.github.io/article/2021-1-26-匆匆)
