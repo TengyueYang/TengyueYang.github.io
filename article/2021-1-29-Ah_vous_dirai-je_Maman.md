@@ -44,10 +44,10 @@ Profita de ma faiblesse :
 Hélas, maman ! un faux pas     
 Me fit tomber dans ses bras.     
 
-我脸红起来，不幸的是    
-一声气息将我出卖    
+我脸红起来，更不幸的是    
+一声气息将我背叛    
 无情的爱情高手    
-利用了我的脆弱  
+利用了我的弱点  
 唉 妈妈，我犯了错  
 我就这样倒在他的怀里     
 
@@ -59,8 +59,8 @@ Ah ! qu'on goûte de douceur,
 Quand l'amour prend soin d'un cœur !     
 
 我什么都没有    
-只有手杖和狗    
+只有手杖和狗子    
 爱情，让我一败涂地    
-丢掉了手杖和狗    
-啊 我还是尝到了甜蜜    
-只要被爱情照料着这颗心    
+丢掉了手杖和狗子    
+啊 我还是尝着甜蜜    
+只要心还被这爱情照顾   
