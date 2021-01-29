@@ -17,7 +17,7 @@ Mon cœur dit à chaque instant :
 « Peut-on vivre sans amant ? »     
 
 妈妈，我要告诉你    
-是什么让我如此痛苦    
+是什么带来了我的痛苦    
 自从我看着Silvandre    
 他也温柔地看着我    
 我的心就不停地问    
