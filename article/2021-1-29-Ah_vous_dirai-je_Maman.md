@@ -16,12 +16,12 @@ Me regarder d'un air tendre ;
 Mon cœur dit à chaque instant :       
 « Peut-on vivre sans amant ? »     
 
-妈妈，我要告诉你
-是什么让我如此痛苦
-自从我看着Silvandre
-他也温柔地看着我
-我的心就不停地问
-我们的生活怎能没有爱人
+妈妈，我要告诉你    
+是什么让我如此痛苦    
+自从我看着Silvandre    
+他也温柔地看着我    
+我的心就不停地问    
+我们的生活怎能没有爱人    
 
 L'autre jour, dans un bosquet,     
 De fleurs il fit un bouquet ;     
@@ -30,12 +30,12 @@ Me disant : « Belle brunette,
 Flore est moins belle que toi ;     
 L'amour moins épris que moi. »     
 
-那天，在树林里
-他采来一束花
-装点我的（牧羊）手杖
-对我说：美丽的秀发啊
-你比那花朵还要美丽
-而我比真爱更加热烈
+那天，在树林里    
+他采来一束花    
+装点我的（牧羊）手杖    
+对我说：美丽的秀发啊    
+你比那花朵还要美丽    
+而我比真爱更加热烈    
 
 Je rougis et par malheur     
 Un soupir trahit mon cœur.     
@@ -44,11 +44,12 @@ Profita de ma faiblesse :
 Hélas, maman ! un faux pas     
 Me fit tomber dans ses bras.     
 
-我脸红起来，不幸的是
-一声气息将我出卖
-无情的爱情高手
-利用了我的脆弱
-我就这样倒在他的怀中
+我脸红起来，不幸的是    
+一声气息将我出卖    
+无情的爱情高手    
+利用了我的脆弱  
+唉 妈妈，我犯了错  
+我就这样倒在他的怀里     
 
 Je n'avais pour tout soutien     
 Que ma houlette et mon chien.     
@@ -57,9 +58,9 @@ L'amour, voulant ma défaite,
 Ah ! qu'on goûte de douceur,     
 Quand l'amour prend soin d'un cœur !     
 
-我孤立无援
-只有手杖和狗
-爱情，让我一败涂地
-抛弃手杖和狗
-啊 就这样我尝到甜蜜
-只要被爱情照料着心灵
+我什么都没有    
+只有手杖和狗    
+爱情，让我一败涂地    
+丢掉了手杖和狗    
+啊 我还是尝到了甜蜜    
+只要被爱情照料着这颗心    
