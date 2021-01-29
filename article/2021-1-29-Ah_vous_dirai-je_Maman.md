@@ -59,8 +59,8 @@ Ah ! qu'on goûte de douceur,
 Quand l'amour prend soin d'un cœur !     
 
 我什么都没有    
-只有手杖和狗子    
+只有手杖和狗    
 爱情，让我一败涂地    
-丢掉了手杖和狗子    
+丢掉了手杖和狗    
 啊 我还是尝到了甜蜜    
 只要心还被这爱情照顾   
