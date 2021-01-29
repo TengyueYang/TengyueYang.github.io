@@ -1,10 +1,9 @@
 
 
-我们知道，莫扎特的小星星变奏曲,原题是`Twelve Variations on "Ah vous dirai-je, Maman"`。这个`Ah vous dirai-je, Maman`，我一直以为是一首儿歌。今天查了一下歌词，发现他娘的并非如此。请诸君观赏。（翻译可忽略）
+我们知道，莫扎特的小星星变奏曲原题是`Twelve Variations on "Ah vous dirai-je, Maman"`. 这个`Ah vous dirai-je, Maman`，我一直以为是一首儿歌。今天查了一下歌词，发现他娘的并非如此，并且终于明白了为什么下面的这位小姐姐要如此安排情绪。特此记录
 
 # Ah vous dirai-je, Maman
 ### 演唱者是Sabine Devieilhe
-
 
 <iframe src='https://upos-sz-mirrorkodo.bilivideo.com/upgcxcode/64/63/227246364/227246364-1-16.mp4?e=ig8euxZM2rNcNbdlhoNvNC8BqJIzNbfq9rVEuxTEnE8L5F6VnEsSTx0vkX8fqJeYTj_lta53NCM=&uipk=5&nbs=1&deadline=1611918189&gen=playurl&os=kodobv&oi=1866714693&trid=5de70cbbba3541388c8345d87fcd6a69h&platform=html5&upsig=163f02bef0910c3d8cf21599c2517fdc&uparams=e,uipk,nbs,deadline,gen,os,oi,trid,platform&mid=0&logo=80000000?t=app.bilibili.com'> </iframe>
 
@@ -34,7 +33,7 @@ L'amour moins épris que moi. »
 那天，在树林里
 他采来一束花
 装点我的（牧羊）手杖
-忽悠我：秀发啊
+对我说：美丽的秀发啊
 你比那花朵还要美丽
 而我比真爱更加热烈
 
@@ -45,11 +44,11 @@ Profita de ma faiblesse :
 Hélas, maman ! un faux pas     
 Me fit tomber dans ses bras.     
 
-我脸红起来，并且他娘的
-气息把我出卖
-无情的情场老手
-利用我的脆弱
-使我倒在他的怀
+我脸红起来，不幸的是
+一声气息将我出卖
+无情的爱情高手
+利用了我的脆弱
+我就这样倒在他的怀中
 
 Je n'avais pour tout soutien     
 Que ma houlette et mon chien.     
@@ -59,8 +58,8 @@ Ah ! qu'on goûte de douceur,
 Quand l'amour prend soin d'un cœur !     
 
 我孤立无援
-只有手杖和狗子
-爱情，输了
-抛弃手杖和狗子
-啊 我们就这样尝到甜蜜
-当爱滋养着心灵
+只有手杖和狗
+爱情，让我一败涂地
+抛弃手杖和狗
+啊 就这样我尝到甜蜜
+只要被爱情照料着心灵
